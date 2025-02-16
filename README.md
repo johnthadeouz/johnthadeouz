@@ -2,7 +2,7 @@
 - 👀 I’m interested in videogames
 - 🌱 I’m currently learning QA workflow
 - 💞️ I’m looking to collaborate on RPG Games
-- 📫 How to reach me https://discord.gg/ZndetVm
+- 📫 Reach me out (https://discord.gg/ur2qFcCT4d)
 
 
 <!---
