@@ -1,7 +1,7 @@
 - 👋 Hi, I’m  Kymelion
 - 👀 I’m interested in videogames
 - 🌱 I’m currently learning QA workflow
-- 💞️ I’m looking to collaborate on RPG Games
+- 💞️ I’m looking to collaborate on Indie Games
 - 📫 Reach me out (https://discord.gg/ur2qFcCT4d)
 
 
