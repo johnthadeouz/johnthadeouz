@@ -1,7 +1,7 @@
 - 👋 Hi, I’m  Kymelion
-- 👀 I’m interested in videogames
-- 🌱 I’m currently learning QA workflow
-- 💞️ I’m looking to collaborate on Indie Games
+- 👀 Learning how to draw the whole 2026
+- 🌱 I’m doing a living as QA Tester at 🍁
+- 💞️ I’m looking to collaborate on Indie Games / GameJams
 - 📫 Reach me out on my Instagram https://www.instagram.com/kyme_games/
 
 
